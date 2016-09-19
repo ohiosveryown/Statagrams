@@ -8,4 +8,4 @@ Each week during the college football season, I compile statistics and create an
 All images are credited to my bros at <a target="_blank" href="https://www.flickr.com/photos/elevenwarriors/">Eleven Warriors Flickr </a>.
 
 ## License </br>
-*Be nice. Feel free to borrow, steal, etc.*
+*Be nice. Feel free to borrow, steal, etc – property of Eleven Warriors*
