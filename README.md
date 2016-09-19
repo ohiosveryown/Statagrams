@@ -1,5 +1,5 @@
 # Ohio State Statagrams
-*Pow, bam!* 🙆💆🏼🙋🏼🙆🏼
+*Pow, bam!* 🙆🏼💆🏼🙋🏼🙆🏼
 *[O][H][I][O]*
 ## Welcome!
 Each week during football season, I compile statistics and create an infographic based on The Ohio State University football team's output.
